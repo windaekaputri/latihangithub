@@ -1,0 +1,2 @@
+# latihangithub
+Penyimpanan
